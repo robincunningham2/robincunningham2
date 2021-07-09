@@ -1,1 +1,1 @@
-I am just a student that spends his time coding programs and websites
+I am just a person that spends his time coding programs and websites
